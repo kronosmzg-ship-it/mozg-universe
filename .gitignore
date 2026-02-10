@@ -1,0 +1,34 @@
+# Секция для Android-приложения
+.gradle
+.idea
+*.iml
+local.properties
+*.keystore
+*.jks
+build/
+app/build/
+
+# Секция для веб-сайта (если используете Node.js/React)
+node_modules/
+npm-debug.log*
+yarn-debug.log*
+yarn-error.log*
+.env
+.env.local
+
+# Секция для операционной системы
+.DS_Store  # macOS
+Thumbs.db  # Windows
+desktop.ini  # Windows
+
+# Секция для IDE/редакторов
+.vscode/
+.idea/
+*.swp
+*.swo
+*~
+
+# Ваши секреты - НИКОГДА НЕ ДОБАВЛЯТЬ!
+secrets.json
+config.properties
+api_keys.txt
