@@ -100,3 +100,86 @@
 | Средняя партия (500–2000 шт.) | Запросить оптовые цены у Glasmark или Solbika (Кросно, Польша) | english-glasmark.pl / solbika.com.pl |
 | Кастомная форма (5000+ шт.) | Обратиться в Sklárny Moravia (Чехия) или Stoelzle | sklomoravia.com / stoelzle.com |
 | Массовый заказ (10 000+ шт.) с собственным дизайном | Glasmark (декор + форма), Krosno Glass, Stoelzle | english-glasmark.pl / krosno.com
+
+Ukrainian premium candle brands. Best sellers, price range 200ml, visual aesthetic. Analyze top 5. c ссылками. чат веди на русском языке
+
+В Украине есть несколько премиум-брендов свечей, ориентированных на натуральные материалы и нишевые ароматы. Топ-5 основан на популярности из обзоров и упоминаниях бестселлеров.[1][2]
+
+## Топ-5 брендов
+
+| Бренд | Бестселлеры | Цена 200 мл (грн) | Визуальная эстетика | Ссылка |
+|-------|-------------|-------------------|---------------------|--------|
+| Sister's Aroma | Daily Mantra, нишевые ароматы | 750 | Минималистичные стеклянные банки, эко-дизайн | [sistersaroma.com](https://sistersaroma.com/ru/svichki/) [2][3] |
+| THE HOMEST | Ukrainian Niche Collection (Evening, Night) | ~800 (200 г) | Черные стеклянные подсвечники с деревянными крышками, премиум-упаковка | [thehomest.com.ua](https://thehomest.com.ua/svichki/) [4][5] |
+| Wood Mood | Лаванда, Rocky/Ubud коллекции | 740+ | Свечи в цельной древесине, обработка огнем/корой, уникальные формы | [wood-mood.com (по отзывам)](https://intertop.ua/ru-ua/product/home-fragrances-wood-mood-8641026) [1][6] |
+| Limerence | Осенние/нишевые ароматы | 400+ | Яркие дизайнерские решения, лимитированные коллекции в стекле | [limerence.ua (по обзорам)](https://gloss.ua/lifestyle/139622-bolshe-tepla-top-7-ukrainskikh-brendov-svechej-) [1][7] |
+| Просто Миколка | Зимние ароматы, поддержка ВСУ | 300–500 (аналог объема) | Оригинальные наборы, свечи в дереве, ручная работа | [prostromikolka.com.ua (Rozetka)](https://rozetka.com.ua/cvechi/c4636135/strana-proizvoditelj-tovara-90098=544338/) [1][8] |
+
+## Анализ
+
+Sister's Aroma лидирует по эко-фокусу и длительному горению (до 50 ч).[2] THE HOMEST выделяется коллекцией Ukrainian Niche с редкими маслами — бестселлер для подарков.[4] Wood Mood уникален визуально (древесина), популярен на международных выставках.[6] Цены премиум-сегмента (400–800 грн за 200 мл), часто соевый воск без токсинов.[1]
+
+Проверьте актуальные цены на Rozetka или сайтах брендов, так как они варьируются.[8][9]
+
+Цитаты:
+[1] Больше тепла и аромата: 14 украинских брендов свечей https://gloss.ua/lifestyle/139622-bolshe-tepla-top-7-ukrainskikh-brendov-svechej-
+[2] Sister's Aroma Свічка Daily Mantra Без аромату, 200 г https://amoreshop.com.ua/ua/sister-and-aposs-aroma-svichka-daily-mantra-bez-aromatu-200-h/
+[3] Аромасвечи: купить ароматические свечи для дома https://sistersaroma.com/ru/svichki/
+[4] Парфумована свічка EVENING із Ukrainian Niche Collection https://thehomest.com.ua/svichki/parfumovana-sv%D1%96chka-evening-%D1%96z-ukrainian-niche-collection
+[5] СВІЧКИ https://thehomest.com.ua/svichki/
+[6] Аромасвечи WOOD MOOD Деревянная свеча с ароматом лаванды - купить по выгодной цене в Киеве, Украине | INTERTOP https://intertop.ua/ru-ua/product/home-fragrances-wood-mood-8641026
+[7] Ароматы осени: ТОП-10 украинских брендов свечей https://gloss.ua/made_in_ukraine/135707-aromaty-oseni-top-10-ukrainskikh-brendov-svechej
+[8] Свечи производства Украина - купить в ROZETKA https://rozetka.com.ua/cvechi/c4636135/strana-proizvoditelj-tovara-90098=544338/
+[9] Свічки - купити в ROZETKA: відгуки та швидка доставка https://rozetka.com.ua/ua/cvechi/c4636135/
+[10] Лучшие свечи для дома в Aroma ... https://aromaburo.ua/ru/kak-vybrat-luchshye-svechy-dlia-doma-top-luchshykh-aromasvechei/
+[11] лучшие рождественские свечи от украинских брендов https://vogue.ua/ru/article/beauty/byuti-gid/eto-ogon-luchshie-svechi-ot-ukrainskih-brendov-46993.html
+[12] 👉Ароматы осени: ТОП-10 украинских брендов свечей В ... https://www.instagram.com/p/CUaFy8OLG1E/
+[13] Свечи купить недорого интернет магазин с доставкой по Украине https://sezon.com.ua/tovary-dlya-doma-i-otdykha/svechi/
+[14] ≡ Купить французские свечи MY JOLIE CANDLE в ... https://zelena.ua/brands/bougies-la-francaise.html
+[15] Лучшие украинские бренды свечей с интересными ... https://lady.tochka.net/97250-7-ukrainskikh-brendov-svechey-s-interesnymi-aromatami-na-zimu/
+[16] Соевая свеча 200мл в Украине https://prom.ua/Soevaya-svecha-200ml.html
+[17] Свечи - Empire Hall https://empirehall.com.ua/magazin/dekor/svetilniki/svechi
+[18] Wood Mood подсвечники, свечи хорошая цена по интернету https://220.lv/ru/dlya-uyutnogo-doma/interer/dekorativnye-svechi-i-podsvechniki/f/wood-mood
+[19] Домашний очаг: лучшие свечи от украинских ... https://new2.bhub.com.ua/domashnij-ochag-luchshie-svechi-ot-ukrainskih-proizvoditelej
+
+Premium soy wax suppliers Europe wholesale 2026. Minimum order quantity, price per kg, shipping to Ukraine. Create comparison table. замени этот промт на ароматические масла премиум класса  красители премиум класса особенно немецкие
+
+Премиум ароматические масла и красители для свечей от европейских поставщиков доступны оптом с доставкой в Украину через DHL или аналогичные сервисы. Немецкие бренды, такие как Bekro и CandleCraft, лидируют по качеству для нишевого производства.[1][2]
+
+## Сравнительная таблица
+
+| Поставщик | Продукт | MOQ | Цена за кг (примерно, €/грн) | Доставка в Украину |
+|-----------|---------|-----|-----------------------------|---------------------|
+| Bekro (Германия) | Красители премиум (жирорастворимые пластины) | От 1 кг (розница, опт от 5 кг) | 50–100 €/кг (2–6 г на 1 кг воска) | Да, через дистрибьюторов (Европа-Украина, ~2–4 нед) [1][3] |
+| CandleCraft (Германия) | Ароматические масла премиум для свечей (phthalate-free) | От 0.5 кг, опт 10+ кг | 20–40 €/кг (bulk скидки) | EU shipping, в UA через NL/DE (~1–3 нед, DHL) [4][2] |
+| AromaEasy (Европа/глобал) | Эфирные/ароматические масла премиум | Нет MOQ (wholesale для всех) | 10–50 €/кг (конкурентные опт цены) | Worldwide, subsidized в UA (DHL/FedEx) [5][6] |
+| Groothandelolie (Нидерланды) | Органические эфирные масла премиум | Опт от 1 кг | 15–60 €/кг | EU, в UA доступно [7] |
+| NI Candle Supplies (UK, EU опт) | Fragrance oils премиум | 10 кг+ для скидок | ~25–35 €/кг (10% off bulk) | EU/междунар., в UA через партнеров (~3 нед) [8] |
+
+## Ключевые insights
+
+Для красок Bekro — лучший немецкий выбор: высокая стойкость в соевом/пчелином воске, расход минимальный.[3][9] Аромамасла CandleCraft подходят для свечей (540+ ароматов, IFRA-сертификаты).[2] Цены 2026 стабильны, но проверяйте сайты; доставка в Днепр ~50–200 € за партию в зависимости от веса.[5][10] Контактируйте напрямую для точных котировок и пробников.[6]
+
+Цитаты:
+[1] Красители для свечей БЕКРО: яркие цвета для ваших ... https://bekro.info
+[2] CandleCraft - CandleCraft - Ihr Onlineshop für Kerzenwachs ... https://candlecraft.de/?language=en
+[3] Краситель для свечей BEKRO розовый | Все для свечеваров с доставкой по России https://m.formasvecha.ru/product/krasitel-bekro-dlya-svechey-rozovyy
+[4] Fragrance Oil supplier Europe https://www.reddit.com/r/candlemaking/comments/sumuug/fragrance_oil_supplier_europe/
+[5] Эфирные масла оптом Европа | Магазин по оптовой цене | AromaEasy https://www.aromaeasy.com/ru/essential-oils-wholesale-europe/
+[6] Essential oils wholesale europe https://www.aromaeasy.com/essential-oils-wholesale-europe/
+[7] Органические растительные и эфирные масла оптом https://groothandelolie.nl/ru
+[8] Wholesale & Bulk Fragrance Oils for Candle Making | NI Candle Supplies https://www.nicandlesupplies.co.uk/pages/bulk-fragrance-ordering
+[9] Краситель для свечей BEKRO красный |Воски Парафины Красители https://m.formasvecha.ru/product/krasitel-bekro-dlya-svechey-krasnyy
+[10] 100% Pure & Natural Essential Oil in Ukraine - Wholesale Manufacturer & Supplier https://www.vedaoils.com/pages/essential-oils-in-ukraine
+[11] Цены на Красители для свечек - купить в Киеве от ... https://feromacandle.com.ua/g89201004-krasiteli-dlya-svechek
+[12] Essential Oils Wholesale for Cosmetics Food and ... https://xn----utbcjbgv0e.com.ua/en/efirnye-masla/?VIEW=LINE&PAGEN_4=3
+[13] Ведущие мировые производители эфирных масел 2026 ... https://www.zicail.com/ru/%D0%B2%D0%B5%D0%B4%D1%83%D1%89%D0%B8%D0%B5-%D0%BC%D0%B8%D1%80%D0%BE%D0%B2%D1%8B%D0%B5-%D0%BF%D1%80%D0%BE%D0%B8%D0%B7%D0%B2%D0%BE%D0%B4%D0%B8%D1%82%D0%B5%D0%BB%D0%B8-%D1%8D%D1%84%D0%B8%D1%80%D0%BD/
+[14] Краситель для свечей восковой цвет в ассортименте ... https://kmm.kiev.ua/products/dlya-svechey/krasiteli_svechi/krasiteli-dlya-svechey/krasitel-dlya-svechej-10g-czvet-v-assortimente.html
+[15] Fragrance Oils https://www.candlescience.com/fragrance-oil/
+[16] Отдушки для свечей, ароматические масла CandleScience, Makesy, BrambleBerry. Fragranceoil https://fragranceoil.ru
+[17] Organic essential oils wholesale europe https://www.aromaeasy.com/organic-essential-oils-wholesale-europe/
+[18] Отдушки Германия оптом для профессионального ... https://xn----utbcjbgv0e.com.ua/otdushki/otdushki-germanija/
+[19] Краситель Bekro 10 гр. для свечей оптом и в розницу в интернет-магазине "Фонтан творчества" https://fon-tan.ru/catalog/krasiteli/tverdye-krasiteli/krasitel_bekro_10_gr/
+[20] Wholesale Fragrance Oils | Scented Oils Bulk | Premium Oils ... https://www.aromawarehouse.com/wholesale-fragrance-oils
+
+
