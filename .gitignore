@@ -1,3 +1,4 @@
+
 # ============================================
 # MOZG Universe - Git Ignore File
 # Безопасность и производительность
@@ -61,3 +62,20 @@ temp/
 # *.mp4
 # *.mov
 # *.avi
+
+# Кэш-файлы
+.cache/
+
+# VS Code
+.vscode/
+!.vscode/settings.json  # Можно хранить настройки редактора
+!.vscode/extensions.json
+
+# Python
+__pycache__/
+*.py[cod]
+*.so
+.Python
+venv/
+env/
+
