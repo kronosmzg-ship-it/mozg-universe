@@ -74,6 +74,14 @@ temp/
 # Python
 __pycache__/
 *.py[cod]
+
+# Дополнительно для Firebase (если будете использовать)
+firebase-debug.log
+firebase-export.json
+
+# Дополнительно для Docker (на будущее)
+docker-compose.override.yml
+.env.docker
 *.so
 .Python
 venv/
