@@ -1,4 +1,0 @@
-# VS Code
-.vscode/
-!.vscode/settings.json  # Можно хранить настройки редактора
-!.vscode/extensions.json
